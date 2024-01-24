@@ -1,0 +1,4 @@
+- 👋 Hi, I’m thaila
+- 👀 I’m interested in learning new things and listening to songs
+- 🌱 I’m currently learning java
+- 😄 Pronouns: she
