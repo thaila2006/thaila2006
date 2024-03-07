@@ -1,4 +1,4 @@
-- 👋 Hi, I’m thaila
+- 👋 Hi, I’m thaiyal naayagi 
 - 👀 I’m interested in learning new things 
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning java and python
 - 😄 Pronouns: she
